@@ -5,7 +5,6 @@
  
 ### About Me 🚀 
 - C# >>>> any other language that exists or will ever exist</br>
-- Feel free to join our [C# Simping Club](https://www.facebook.com/CsharpSimp69)
 
 
 
